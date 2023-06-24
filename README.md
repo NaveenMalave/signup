@@ -13,12 +13,9 @@
 
 - [@NaveenMalave](https://github.com/NaveenMalave)
 
-
 ## Support
 
 For support, email malavenaveen2002@gmail.com
-
-
 
 ## 🔗 Links
 
